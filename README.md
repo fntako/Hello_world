@@ -1,2 +1,3 @@
 # Hello_world
-fnt_share_ideas
+
+Captain of my soul, master of my destiny
